@@ -1,1 +1,1 @@
-Don't let yourself get attached to anything you are not willing to walk out on in 30 seconds flat if you feel the heat around the corner.
+Just let it happen lol
